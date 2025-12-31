@@ -1,7 +1,7 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=metaIIic&style=flat&color=335583&base=4837&label=to+me,+my+x-men) 
+![](https://komarev.com/ghpvc/?username=metaIIic&style=flat&color=335583&base=4837&label=god+of+mischief) 
 
-<img width="47%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/cyclops"><br>
+<img width="47%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/LadyLokis.gif"><br>
 
-<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　<a href="https://rentry.co/cyclops" rel="nofollow">rentry.co/cyclops&ZeroWidthSpace;</a>
+<a href="https://rentry.co/laufeyson" rel="nofollow">rentry.co/laufeyson&ZeroWidthSpace;</a>​　<a href="https://rentry.co/ladyloki" rel="nofollow">rentry.co/ladyloki&ZeroWidthSpace;</a>​　<a href="https://rentry.co/mischief" rel="nofollow">rentry.co/mischief&ZeroWidthSpace;</a>
