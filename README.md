@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=metaIIic&style=flat&color=335583&base=4837&label=god+of+mischief) 
+![](https://komarev.com/ghpvc/?username=metaIIic&style=flat&color=83c138&base=4837&label=god+of+mischief) 
 
 <img width="47%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/LadyLokis.gif"><br>
 
